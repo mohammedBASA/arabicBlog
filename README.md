@@ -2,5 +2,5 @@
 
 <h3> You deserve better experience  </h3>
 
-<H4> we strive to make arab communities more consineous and to spreat the spirit of work and daily learning
+<H4> We strive to make arab communities more consineous BY spreading the spirit of work and daily learning
  </H4>
